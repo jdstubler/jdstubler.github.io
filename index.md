@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Hey future entrepreneurs!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Here is where I'll share how to become a part time entrepreneur. 
