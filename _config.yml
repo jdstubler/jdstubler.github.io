@@ -18,7 +18,7 @@ description: "This is where I share how to be a part time entrepreneur." # This 
 #########################################################################################
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
 #########################################################################################
-theme: "minima"
+theme: jekyll-theme-tactile
 
 rss: rss
 
