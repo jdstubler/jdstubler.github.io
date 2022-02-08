@@ -1,3 +1,10 @@
+---
+layout: post
+title: "Living from Your Passion"
+date: 2022-02-08
+categories: entrepreneur mindset
+---
+
 ###Living from your passion
 
 ##Sharing your content
