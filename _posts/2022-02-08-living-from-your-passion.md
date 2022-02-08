@@ -1,6 +1,4 @@
 
-### Living from your passion
-
 ## Sharing your content
 
 Living from your passion implies showing it to the world. If you don't get it out there how are you supposed to make an income out of your content? 
