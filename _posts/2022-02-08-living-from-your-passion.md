@@ -1,7 +1,7 @@
 
-###Living from your passion
+### Living from your passion
 
-##Sharing your content
+## Sharing your content
 
 Living from your passion implies showing it to the world. If you don't get it out there how are you supposed to make an income out of your content? 
 
@@ -19,7 +19,10 @@ Your content can't and won't be perfect at first, but in order to publish your p
 
 But of course you know this already don’t you? 
 
-##Finding the right platform
+
+---
+
+## Finding the right platform
 
 Before you’ll step up and jump into the unknown, you’ll have to pick somewhere to start.
 
@@ -33,13 +36,13 @@ Why? Because I wasn't familiar with the platform! I never saw Instagram from a u
 
 It may seem strange, but if you pick a platform you're using frequently, you have a big advantage over entrepreneurs who don't. Subconsciously you know what users are searching for, what they want to watch, what they want to read. Just take a pen and paper, and reflect on what you are doing as a user.
 
-##Still scared?
+## Still scared?
 
 Think about it, showing your content is like public speaking. Imagine yourself talking about your passion in front of a huge crowd. Does it make nervous? It sure makes me nervous! And it's absolutely normal!
 
 But you know what?
 
-##You don't have to share it live
+## You don't have to share it live
 
 You can share your passion while being all alone and comfy, share the recording/script online and it will get to the right people. Don't worry about how, when and where for the moment. Just be yourself, share something about what you love and people will be drawn to you. 
 
