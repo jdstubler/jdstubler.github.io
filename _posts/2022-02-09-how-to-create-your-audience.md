@@ -10,7 +10,7 @@ As you can tell, it was a lot harder than that. What was I missing? What did sep
 
 If you feel the same right now, ask yourself, do you think hashtags, tags or CEOs will make a difference? Don’t get me wrong, hashtags, tags, and CEOs are relevant, but not before you figure out the basics. It’s like having chocolate sprinkles but no cake, it’s not a real desert is it?
 
- ## Likes, comments, shares
+## Likes, comments, shares
 
 During my journey on Instagram, I did a lot of mistakes, my biggest one though might be counterintuitive: I focused on Likes and comments. In reality, Likes and shares don’t matter. Comments alone don’t get you far.
 
