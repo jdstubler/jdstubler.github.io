@@ -1,4 +1,4 @@
-
+# How to be a content creator?
 
 ## Sharing your content
 
@@ -48,3 +48,5 @@ But you know what?
 You can share your passion while being all alone and comfy, share the recording/script online and it will get to the right people. Don't worry about how, when and where for the moment. Just be yourself, share something about what you love and people will be drawn to you. 
 
 So pick your favorite platform, and start publishing!
+
+---
