@@ -8,7 +8,7 @@ As I mentioned in a previous post, two years ago I tried to share my passion for
 Lovely isn’t it?
 
 As you can tell, it was a lot harder than that. What was I missing? What did separate my content from the top ones? It seemed like an impossible task to achieve. That’s when self doubt and excuses came creeping in: 
-** It’s too late to start on Instagram, I’m not made for this, I’m not confident enough, my hashtags aren’t good enough **
+*It’s too late to start on Instagram, I’m not made for this, I’m not confident enough, my hashtags aren’t good enough*
 
 If you feel the same right now, ask yourself, do you think hashtags, tags or CEOs will make a difference? Don’t get me wrong, hashtags, tags, and CEOs are relevant, but not before you figure out the basics. It’s like having chocolate sprinkles but no cake, it’s not a real desert is it?
 
