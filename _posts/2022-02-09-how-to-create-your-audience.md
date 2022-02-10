@@ -33,3 +33,5 @@ What do you want to tell your audience? What is important to you? What value can
 Share your personal experience in a particular topic. Share your struggles and the solutions you found to these struggles. Your target audience is an audience that can identify themselves with you.
 
 That’s what your target audience seeks, that’s how they will find you and more importantely that’s how they will stay. 
+
+---
