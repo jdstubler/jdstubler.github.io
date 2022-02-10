@@ -18,7 +18,7 @@ If you feel the same right now, ask yourself, do you think hashtags, tags or CEO
 
 During my journey on Instagram, I did a lot of mistakes, my biggest one though might be counterintuitive: I focused on Likes and comments. In reality, Likes and shares don’t matter. Comments alone don’t get you far.
 
-If you’re using social media to build your business, than likes, comments, shares or even follows alone aren’t paying your bills. It helps to reach more people, but if the crowd you reach doesn’t do more than liking, commenting and sharing than having 100k followers is just the same than having 100. 
+If you’re using social media to build your business, than likes, comments, shares or even follows alone aren’t paying your bills. It helps to reach more people, but if the crowd you reach doesn’t do more than liking, commenting and sharing than having 100k followers is just the same as having 100. 
 
 Why do I tell you this? Because when you’re starting off, you have to get away from every distraction in order to focus on what really matters. Mark Zuckerberg for example, actively rejected ideas he got from his team in the early days of facebook, which wouldn’t bring him more users. Every time team members came into his office and presented him a feature or an idea they wanted to implement, Mark asked ‘will it bring more users to facebook?’. If the answer was no then there was no point in adding it.
 
