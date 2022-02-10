@@ -1,4 +1,4 @@
-# How to become a content creator
+# How to be a content creator
 
 ## Sharing your content
 
