@@ -1,4 +1,4 @@
-# Why you should copy other people
+# Why should you copy other content creators?
  
 Copying other people’s content is bad right? I would argue that it depends on how you do it.
  
