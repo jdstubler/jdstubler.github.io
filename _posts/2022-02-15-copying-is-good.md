@@ -30,5 +30,6 @@ Use the three steps mentioned above to learn from others. Or to elaborate more, 
 5. analyze the benefits they bring you
 6. Make them better (producing)
 7. Profit 😉
+
 This is how you will grow as a content creator. It’s not about copy and paste, it’s about learning to use what you copied. It’s the journey from a consumer to a producer.
 ‌
