@@ -4,9 +4,9 @@ Copying other people’s content is bad right? I would argue that it depends on 
  
 Remember back in school, when there was a “surprise” test and you hadn’t studied for it? I can’t see why, but it did happen to me on a regular basis. I usually sat there, thinking about what little I could remember from last week’s lesson and when the teacher came around to hand out the exams it happened. My hands where shaking, my heart was racing, I was sweating. I couldn’t go home with an F. My mom would lecture me, talk about how it’s always the same, when will I ever start learning…
 I had three options:
-_ accept defeat and go home with an F
-_ pray for my memory to be good enough to pass
-_ copy
+1. accept defeat and go home with an F
+2. pray for my memory to be good enough to pass
+3. copy
  
 Every single time, I didn’t have the nerve to copy for fear of being caught. Don’t get me wrong here, copying is bad and shouldn’t be an option. You should learn your lessons on a regular basis to be prepared for any exam teachers might through at you. But, a part of me begs to ask, would it be so bad if had cheated and copied? The down sides were rather obvious, but what are the upsides of copying? Besides getting a good grade if I didn’t get caught of course.
 At least I would have learned what I missed during class. I would have read the answers and written them down. Which, if you know anything about how the human brain learns, can’t be a bad thing right?
