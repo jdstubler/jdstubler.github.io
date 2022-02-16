@@ -2,7 +2,7 @@
 
 ## The beginning 
 
-Back in 2012. I started playing guitar. 
+Back in 2012, I started playing guitar. 
 
 Two years later, I got to a decent level. A skill level I was proud of. If you had told me back then, that 8 years later, I would still be roughly at the same level, I would have stopped playing.  
 
@@ -21,6 +21,7 @@ Independent on your current struggles right now, I want to congratulate you. You
 
 Congrats to you, because no matter what your parents/friends tell you, you are still trying. That makes you strong. For all the reasons there are not to pursue your dream, you have ignored them all. Now, if I tell you, you will fail again, would you continue to try? How much failure does it take for you to stop trying?
  
+
 --- 
 
 ## Getting immune to failure 
@@ -33,6 +34,7 @@ Why is it different being a content creator? Why are my loved ones not as suppor
 What does it mean for you? It means, you’ll have very few people if any, to boost yourself back up once you’ll fail. Unless you find a community that does exactly that. A community that share similar dreams and shine with positivity. A community that wants you to succeed. 
 
 We are currently building such a community and would be honored to count you among us. I share the 5 essential steps to becoming a content creator as a welcome gift <a href="https://jd.systeme.io/5-steps-to-content-creation">here!</a> 
+
 
 ---  
 
