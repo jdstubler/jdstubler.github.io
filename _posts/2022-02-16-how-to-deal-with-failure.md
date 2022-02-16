@@ -22,7 +22,7 @@ Independent on your current struggles right now, I want to congratulate you. You
 Congrats to you, because no matter what your parents/friends tell you, you are still trying. That makes you strong. For all the reasons there are not to pursue your dream, you have ignored them all. Now, if I tell you, you will fail again, would you continue to try? How much failure does it take for you to stop trying?
  
 
---- 
+---
 
 ## Getting immune to failure 
 
