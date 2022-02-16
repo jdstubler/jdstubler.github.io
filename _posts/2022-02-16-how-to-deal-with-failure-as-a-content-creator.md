@@ -1,5 +1,4 @@
 
-#‌ How to deal with failure as a content creator 
 
 ## The beginning 
 
