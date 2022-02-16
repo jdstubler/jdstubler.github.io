@@ -36,7 +36,7 @@ What does it mean for you? It means, you’ll have very few people if any, to bo
 We are currently building such a community and would be honored to count you among us. I share the 5 essential steps to becoming a content creator as a welcome gift <a href="https://jd.systeme.io/5-steps-to-content-creation">here!</a> 
 
 
----  
+--- 
 
 ## Quick fix 
 
@@ -44,5 +44,6 @@ Don’t listen to negativity when it comes to your dream. Your dream of becoming
 
 Listen to people who are where you want to be. Only they know how to get there. Have at least three of them and follow their advice and listen to their story. There's a high chance they've been through your current struggles before. This will get you away from negativity and into positivity.
  
+
 Good luck out there!
  
