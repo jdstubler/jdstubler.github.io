@@ -26,7 +26,7 @@ Congrats to you, because no matter what your parents/friends tell you, you are s
 
 ## Getting immune to failure 
 
-During the time I was single, I was becoming used to failed dates. However, there’s one thing that struck me now that I didn’t realize back then: * I was surrounded by people who wouldn’t let me give up *.
+During the time I was single, I was becoming used to failed dates. However, there’s one thing that struck me now that I didn’t realize back then: *I was surrounded by people who wouldn’t let me give up.*
 My parents wanted grandkids so they surely weren’t going to tell me to stop trying, my friends were there for me when I felt down and it never crossed my mind to stop anyway. Same thing with improving my guitar skills, my father was holding me accountable without ever pressuring me or anything, I just wanted to make him proud. 
 
 Why is it different being a content creator? Why are my loved ones not as supportive as they were in regards to dating? Because dating is something that has been around for thousands of years. Because my father played guitar since he was thirteen. Content creation, especially on internet is quite new. It’s considered unsafe, not suited for secure income generation. 
