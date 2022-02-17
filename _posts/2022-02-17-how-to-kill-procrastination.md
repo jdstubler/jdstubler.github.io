@@ -1,5 +1,5 @@
 
-# How to kill procrastination?
+# How to kill procrastination
  
 There’s an exam tomorrow and I haven’t started learning. It’s only 6 PM, I have the whole evening, that’s fine. Let me just watch one episode of game of thrones.
 
