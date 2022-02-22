@@ -2,6 +2,9 @@
 
 I've said it before on this blog, last year, I tried to start a YouTube channel. I had big plans. My goal was to publish two videos of week, in order for me to have 24 videos out in three months. 
 
+
+---
+
 ## The problem 
 
 This had two purposes. One was, it looks better when you have more videos on your channel. The likelyhood of a viewer hitting the subscribe button is significantly higher. 
@@ -17,6 +20,9 @@ I set my goal to publish one video every other week. Which in numbers means, I w
 The huge problem is not the publishing schedule. Two videos, a month is great. However, that's a topic for another day. 
 
 Now, the biggest problem was: I lowered my goal. 
+
+
+---
 
 ## Why is it a big problem? 
 
@@ -50,6 +56,9 @@ If you train your brain into becoming more efficient in creating content, you wi
 **And the last benefit is:** You will see advancement, you will see that you take less, and less time to create content. And that's an improvement. That's the opposite of what you would feel if you publish less and less. 
 
 Your primary goal shouldn't be getting views or getting readers. Your primary goal should be to get efficient at what you're doing and gather skill. 
+
+
+---
 
 ## Your goal 
 
