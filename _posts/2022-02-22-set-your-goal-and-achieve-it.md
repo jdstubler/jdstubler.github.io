@@ -24,14 +24,14 @@ There's three types of goals.
 
 **Achievable ones, challenging ones and impossible ones.** 
 
-The problem with what I did is I went from a nearly impossible goal for me at the time, I took 10 hours to make one video. Which I needed to free up 20 hours per week to make it happen. 
+The problem with that is I started with a nearly impossible goal for me at the time, it took me 10 hours to make one video. I needed to free up 20 hours per week to make it happen. 
 
 Cutting my goal in half, meant it was still a challenging goal, finding 10 hours a week to publish one video. 
 
 Cutting it again in half took the challenge away. *Achievable goals are useless.* These aren't even meant to be goals. 
 The biggest problem is how easy it is. The easier it is, the less attention you'll give it, the less important it gets. How likely is it that you will complete your goal if it isn't among your top priorities?
 
-In contrast, if you take a challenging goal, you can't waste any time because you know it's hard. You will cut every edge, focus on what's important, you will focus on what will bring you closer to your goal. 
+In contrast, if you take a challenging goal, you can't waste any time because you know it's hard. You will cut every corner, focus on what's important, focus on what will bring you closer to your goal faster. 
 
 That's the power. That's The Power of choosing a challenging goal, or an impossible goal. 
 
