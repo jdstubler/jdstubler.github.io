@@ -22,7 +22,7 @@ Now, the biggest problem was: I lowered my goal.
 
 There's three types of goals. 
 
-*Achievable ones, challenging ones and impossible ones.* 
+**Achievable ones, challenging ones and impossible ones.** 
 
 The problem with what I did is I went from a nearly impossible goal for me at the time, I took 10 hours to make one video. Which I needed to free up 20 hours per week to make it happen. 
 
@@ -43,11 +43,11 @@ Reducing your posting schedule gives you gives you more Liberty. Yes. You will b
 
 If you train your brain into becoming more efficient in creating content, you will become acustomed to it. 
 
-*First benefit:* It won't take your as long obviously.
+**First benefit:** It won't take your as long obviously.
 
-*Second benefit:* Your content won't be as precious to you. You're less likely to be disappointed if you don't have great results. 
+**Second benefit:** Your content won't be as precious to you. You're less likely to be disappointed if you don't have great results. 
 
-*And the last benefit is:* You will see advancement, you will see that you take less, and less time to create content. And that's an improvement. That's the opposite of what you would feel if you publish less and less. 
+**And the last benefit is:** You will see advancement, you will see that you take less, and less time to create content. And that's an improvement. That's the opposite of what you would feel if you publish less and less. 
 
 Your primary goal shouldn't be getting views or getting readers. Your primary goal should be to get efficient at what you're doing and gather skill. 
 
