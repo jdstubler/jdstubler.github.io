@@ -26,7 +26,7 @@ Now, the biggest problem was: I lowered my goal.
 
 ## Why is it a big problem? 
 
-There's three types of goals. 
+There are three types of goals. 
 
 **Achievable ones, challenging ones and impossible ones.** 
 
