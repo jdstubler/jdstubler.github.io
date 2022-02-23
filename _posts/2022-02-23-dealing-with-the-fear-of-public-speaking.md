@@ -24,7 +24,7 @@ What if you could harness your fear? And channel it into something great.
 The first step is to understand that you are not alone as an introvert. Many celebrities have the same problem if you believe it or not. **Celebrities that may look extraverted are in fact introverted (Emma Watson, Bill Gates, Meryl Streep).**
 
 ---
-## solutions
+## Solutions
 
 **Make notes of what triggers this kind of stress.** Think about what could make you feel more comfortable. Do the same in situations where you are comfortable and try to spot what makes them comfortable for you.
 
