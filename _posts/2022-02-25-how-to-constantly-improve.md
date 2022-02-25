@@ -37,7 +37,7 @@ Because numbers won't go up just because you think you deserve it. Focus on:
 
 **What would bring listeners to your podcast?**
 
-**What will bring readers to your blog posts? **
+**What will bring readers to your blog posts?**
 
 What is present in others' content that isn't in yours? Why? Should you implement it into your content? How?
 That's why you want to sharpen your skills.
