@@ -60,6 +60,9 @@ Replace your three bad habits, eith three good habits.
 
 See how I don't even talk about really giving up bad habits, because if you replace bad habits with good habits, you won't have time to think about your bad ones. 
 
+
+---
+
 ## How much time does it take to create a good habit? 
 
 It takes about three weeks of hard work, three weeks of getting accustomed to a good habit, because a good habit is, most of the time, harder to pick up than a bad one. It's out of your comfort zone and that's why bad habits are so hard. They require will and hard work. 
