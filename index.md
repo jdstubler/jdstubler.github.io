@@ -1,8 +1,7 @@
 
-Hey content creators!
+Hey pentesters and hacking enthusiasts!
 
-Here is where I ease off some of the pain and headache you will have on your journey to becoming a great content creator. 
-
+Here is where I write up walkthroughs of htb and vulnhub boxes.
 
 <a href="/archive.html">Archive of blog posts</a>
 
