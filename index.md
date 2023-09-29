@@ -1,7 +1,7 @@
 
 Hey pentesters and hacking enthusiasts!
 
-Here is where I write up walkthroughs of htb and vulnhub boxes.
+Here is where I write hacking related posts.
 
 <a href="/archive.html">Archive of blog posts</a>
 
